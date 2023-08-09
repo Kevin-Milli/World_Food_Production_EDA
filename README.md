@@ -36,6 +36,6 @@ I would like to express my gratitude to the FAO for providing the valuable datas
 
 ## Contact
 
-If you have any questions, suggestions, or feedback, feel free to reach out to me via [email](mailto:your@email.com) or [LinkedIn](https://www.linkedin.com/in/yourusername/).
+If you have any questions, suggestions, or feedback, feel free to reach out to me via [email](millikevin2@gmail.com) or [LinkedIn](https://www.linkedin.com/in/kevin-milli/).
 
 Happy analyzing! 📊🌍
